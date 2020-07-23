@@ -1,4 +1,4 @@
-### Hi there 👋
+### Rudraksha is symbol of god shiva,rudraksha beads grow in rudraksha trees in nepal. The use of rudrakha beads is wearing regularly,worship or doing mantra(hymn) japa(chanting) through its garland(mala) 👋
 
 <!--
 **nepalrudraksha/nepalrudraksha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
